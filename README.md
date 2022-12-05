@@ -1,5 +1,5 @@
 - Hi, I’m @GoofyGithub it fits me well. how about yours?
-- If you havent already seen yet, im working on something very special andcod take up to months to complete V1.
+- If you havent already seen yet, im working on something very special and could take up to months to complete V1.
 - Soo as you can tell im pretty busy and very hard to reach.
 - You Can't Rush ✨ Art ✨
 - Call Me Goofy But Even A Broken Clock Is Right 2 Or 3 Times A Day
